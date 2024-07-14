@@ -1,2 +1,4 @@
-here amazing store 
-please click on the link https://wwwjishanworld.myshopify.com/
+here amazing store
+
+[Visit my website](https://wwwjishanworld.myshopify.com/)
+
